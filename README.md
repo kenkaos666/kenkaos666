@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kenkaos666
+- 👋 Hi, I’m KenKaos 
 - 👀 I’m interested in agricoltura 
 - 🌱 I’m currently learning meccanica 
 - 💞️ I’m looking to collaborate on lavori con il tornio 
